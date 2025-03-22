@@ -27,7 +27,7 @@ I'm currently diving deeper into:
 
 ## 📫 Find Me on:
 
-- 🎥 YouTube: [@ahmedaiagent](https://youtube.com/@ahmedaiagent)
+- 🎥 YouTube: [@aiwithahmed](https://youtube.com/@ai-hmed)
 
 Feel free to reach out if you're interested in AI agents, automation, or just want to chat about the future of technology!
 
